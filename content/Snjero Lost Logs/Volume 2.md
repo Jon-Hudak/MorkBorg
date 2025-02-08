@@ -1,0 +1,23 @@
+This log tells the story of what happened to [[Eira]] and [[Viktor]] after returning from the land of the dead. They were accompanied by [[Ragnar]] in their return, however, [[Ragnar]] suffered from what is called "summoning sickness", a condition where a person who comes back from the dead is incredibly ill and must rest before returning to adventure. He would spend his time recovering while the two who managed to not get sick went off on their on thing.
+
+[[Eira]] and [[Viktor]] met the Resident [[Aleksi]] in the Chapel, where he revealed that he spoke with father, as only the resident or dead can do, and that he knows they must make their way to the [[Machina]] at the edge of [[Jarla]]. However, he had encouraged the two to not make such a long journey without their comrade [[Ragnar]]. He talked about wanting to further investigate the temples that were destroyed, and since the underground temple was such a disaster, he instructed them to go there first. He gave them each gold from the treasury, and sent them into town to load up on supplies before heading north. 
+
+In the town, they went to [[Masha's Supply Shop]]. [[Masha]] was a questionable character who appeared when the original store owner mysteriously died. She sold them both some goods, some of which belonged to the black hand that Viktor accidentally sold when he was on a drunken bender in the past! One item of great interest was a sealed black box, that was said to be from the black market.... 
+
+After shopping, they stopped at the tavern where on the radio (via sending stone) an announcement came from the emperor himself, stating that all seafaring travel is restricted and that he believes the rebels are responsible for the attacks on the temple... there was immediate uproar, and violence upon the news, so [[Viktor]] and [[Eira]] took to the train to head to [[Utton]] where the temple lay in ruins.. 
+
+Upon arriving in [[Utton]], [[Eira]] was worried that she would be noticed for her recent attack on the navy, so she wildshaped into a winter fox. [[Viktor]] walked to the guard station while [[Eira]] followed in stealth as a fox, where they met a guard named [[Ivan]]. He explained that he saw [[Viktor]]'s original body, as that is how the Family reincarnates people, creating an exact copy before death. [[Viktor]] took his equipment and decided to go check out the ruins of the temple. 
+
+Upon arriving at the temple, [[Eira]] still in fox form, [[Viktor]] was greeted by guards who said that the temple ruins were not open for investigation, even for an esteemed member of the [[Black Hand]]. This was suspicious.... after some bantering, Viktor was instructed to meet [[Lt. Hans]] at the town restaurant to discuss this. [[Eira]] stayed behind to see if she could find any clues or sneak in.. 
+
+While meeting with [[Lt. Hans|Hans]], Hans attempted to bribe [[Viktor]] with a large sum of gold if he were to just stop his investigation. Viktor countered by revealing that he knew about the Hat Man blowing up the temple, and about there being vampires... [[Lt. Hans|Hans]] appeared visibly upset, and walked him back to the temple. 
+
+At the same time, [[Eira]] hid as a fox and listened to the guards, who began to reveal that something was hidden in the temple, and if [[Viktor]] were to delve too deep, he would be killed. [[Eira]] immediately began running to find [[Viktor]] to warn him.
+
+[[Eira]] found [[Viktor]] just in time, and [[Lt. Hans|Hans]] was preparing to kill him. She shifted into an owl bear, and [[Viktor]] and [[Eira]] were able to kill [[Lt. Hans|Hans]]. Additionally, the guards rushed over to take them down, who were also defeated! [[Ivan]] came over from his post, and upon seeing the mess, pretended to see nothing since the dead soldiers looked like they died in an accident with an owlbear. 
+
+With the temple left unguarded, the two snuck into the ruins. Deep inside, they found a door to a secret room with a strange green glassy amulet, and a candle of green flame. The room was bizarre and filled with old furniture, that seemed to fall apart if the candles light went out. The amulet was even stranger.. holding it felt like all magical senses were blinded.
+
+The two then returned to the [[Black Hand ]]temple in [[Burgen]] to show [[Aleksi]] the amulet, who immediately destroyed it. Revealing that the room they were in was a secret vampire safehouse that must've been built in secret under the temple.. the amulet was revealed to be an [[Amulet of Agneska]], a vampiric creation that had the ability to prevent the [[NPCs/The Holy Family/Holy Family]] from seeing things in their world... The final thing [[Aleksi]] said was...
+
+"He's back."

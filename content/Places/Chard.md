@@ -1,0 +1,1 @@
+Coastal area in [[Snaefeljoko]]

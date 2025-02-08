@@ -1,0 +1,1 @@
+Guard in [[Utton]]. Explained to party that he saw [[Viktor]]'s original body, explaining that the Family reincarnates people by creating an exact copy of their body before death.
