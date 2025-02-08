@@ -1,1 +1,0 @@
-A drinkable and powerful hallucinogenic drug

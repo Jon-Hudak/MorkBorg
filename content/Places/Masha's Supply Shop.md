@@ -1,1 +1,0 @@
-Shop in [[Snaefeljoko]]. Operated by [[Masha]]

@@ -1,1 +1,0 @@
-A vampiric creation that had the ability to prevent the [[NPCs/The Holy Family/Holy Family]] from seeing things in their world.

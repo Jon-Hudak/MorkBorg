@@ -1,1 +1,0 @@
-The primary religious body in [[Snjero]]

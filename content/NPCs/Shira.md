@@ -1,1 +1,0 @@
-Large horse-sized lizards, used to pull carts in Desert Terrains.

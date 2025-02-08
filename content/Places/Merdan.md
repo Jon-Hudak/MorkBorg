@@ -1,1 +1,0 @@
-City in [[Snjero]]

@@ -1,1 +1,0 @@
-[[Gustav]]'s bear companion.

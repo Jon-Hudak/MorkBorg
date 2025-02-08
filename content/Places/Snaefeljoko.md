@@ -1,1 +1,0 @@
-A land in the north where [[Eira]] fled after bombing a [[Snjero|Snjeran]] port after learning they were holding flame elementals captive.

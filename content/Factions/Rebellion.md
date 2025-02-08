@@ -1,1 +1,0 @@
-Rebels fighting for independence from [[Snjero]].
